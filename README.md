@@ -1,0 +1,1 @@
+gõ nát bàn phím, đeo kính cận lần đầu tiên trong đời !!!
